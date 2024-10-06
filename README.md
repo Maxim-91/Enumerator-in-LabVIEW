@@ -8,4 +8,5 @@
 ![image](https://github.com/user-attachments/assets/055f2493-1aa7-4a3d-a67c-ae3cfe3da312) 
 
 ## The appearance of the program
-![image](https://github.com/user-attachments/assets/6b7b42f0-d8ea-4889-8c34-86b0b4f8ccd4)
+![image](https://github.com/user-attachments/assets/6b7b42f0-d8ea-4889-8c34-86b0b4f8ccd4) 
+![image](https://github.com/user-attachments/assets/0d8766b2-0b39-40d5-a25e-d73c29a22754)
